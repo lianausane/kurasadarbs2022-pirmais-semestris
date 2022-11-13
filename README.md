@@ -1,0 +1,1 @@
+# kurasadarbs2022-pirmais-semestris
